@@ -2,4 +2,4 @@
 
 
 
-ㅤ<p align="center"> [Ი𐑼ㅤMain](https://github.com/Hello-MyFriends190)
+ㅤ<p align="center">     [Ი𐑼 Main](https://github.com/Hello-MyFriends190) ㅤ۫ㅤ Ი𐑼 ˖ ㅤ[Ი𐑼 SP](https://starryprofile.straw.page/)
